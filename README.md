@@ -1,0 +1,1 @@
+My name is Jeremiah Olufayo. I am 24 years old. I studied Electrical and Electronics Engineering
